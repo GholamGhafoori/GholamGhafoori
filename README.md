@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GholamGhafoori
-- 👀 I’m interested in Workshop
+- 👀 I’m interested in Workshops
 - 🌱 I’m currently learning Startup
 - 💞️ I’m looking to collaborate on my work
 - 📫 How to reach me by mail
