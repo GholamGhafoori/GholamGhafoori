@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GholamGhafoori
 - 👀 I’m interested in Workshops
-- 🌱 I’m currently learning Startup
+- 🌱 I’m currently learning Startups
 - 💞️ I’m looking to collaborate on my works
 - 📫 How to reach me by mail
 
